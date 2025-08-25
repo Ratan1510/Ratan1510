@@ -49,7 +49,7 @@
 
 ## 🌐 Connect with Me  
 - [LinkedIn](https://www.linkedin.com/in/ratan-singh-37a9702b1/)  
-- 📧 Email: *your email here*  
+- 📧 Email: *ratan.singh.stt@gmail.com*  
 
 ---
 
